@@ -1,2 +1,1 @@
-# Main
-<img width="2048" height="2048" alt="Untitled380_20250814025023" src="https://github.com/user-attachments/assets/b1d46f98-c1bb-4bd0-86f5-fb98c42f8d15" />
+![](https://cdn.discordapp.com/attachments/1280275683607576669/1408991887746011269/tumblr_2bf666bd59b2f7cf72f6c057596c9ad6_8f1be7ae_100.webp?ex=68abc173&is=68aa6ff3&hm=88cc6fb6cd8e045fb11620fa0e8919adf5c9fd5ae5f999d0b8916ee47399e03b&)
